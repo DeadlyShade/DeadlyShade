@@ -44,7 +44,6 @@
 
  <p align="center">$${\color{#433748}\textbf{*ੈ✩‧₊˚༺}}{\color{#7D4560}\textbf{☆}}{\color{#433748}\textbf{༻*ੈ✩‧₊˚}}$$
 
-<p align="center">$${\color{#433748}\textbf{Theres a 50/50 chance that i will follow back someone ! :D}}$$
 
 <div align="center">
 <details>
