@@ -44,4 +44,30 @@
 
  <p align="center">$${\color{#433748}\textbf{*ੈ✩‧₊˚༺}}{\color{#7D4560}\textbf{☆}}{\color{#433748}\textbf{༻*ੈ✩‧₊˚}}$$
 
- Theres a 50/50 chance that i will follow back someone ! :D
+<p align="center">$${\color{#433748}\textbf{Theres a 50/50 chance that i will follow back someone ! :D}}$$
+
+<div align="center">
+<details>
+  <summary>
+    $${\Huge\color{#433748}\textbf{𝑺𝑯𝑰𝑷𝑺}}$$
+  </summary>
+</p>
+<div align= "center">
+    <p align="center">$${\color{#433748}\textbf{My favorite ships are mostly}}$$
+    <p align="center">$${\color{#433748}\textbf{Mafiatime , pizzatime , paycheck , pizzadebt , azuretime , frozen debt , 1xtime}}$$
+    <p align="center">$${\color{#433748}\textbf{My least favorite but i support it !}}$$
+    <p align="center">$${\color{#433748}\textbf{Doublefedora , doublezipper , 1xjohn }}$$
+    <p align="center">$${\color{#433748}\textbf{pls try to respect my choices its my own taste}}$$
+    <p align="center">$${\color{#433748}\textbf{i do not support p***shipping or smth like that}}$$
+    </details>
+
+ <p align="center">$${\color{#433748}\textbf{*ੈ✩‧₊˚༺}}{\color{#7D4560}\textbf{☆}}{\color{#433748}\textbf{༻*ੈ✩‧₊˚}}$$
+
+ <p align="center">$${\color{#433748}\textbf{Theres a 50/50 chance that i will follow back someone ! :D}}$$
+
+<p alight="center"><img width="2000" height="800" alt="qkuxmo" src="https://github.com/user-attachments/assets/6d29f215-1387-4c9b-837f-97a7d7985bfd" />
+
+ 
+
+
+
