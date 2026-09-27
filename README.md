@@ -37,7 +37,7 @@
     <p align="center">$${\color{#433748}\textbf{Please do not try to copy some of my skins they are original from me}}$$
     <p align="center">$${\color{#433748}\textbf{Or else i can be harsh , toxic toward you pls avoid it}}$$
     <p align="center">$${\color{#433748}\textbf{Very peak Friends }}$$
-    <p align="center">$${\color{#433748}\textbf{@Nerosuince , @twottimy , @iloveoishisomuch , @Gatita-here}}$$
+    <p align="center">$${\color{#433748}\textbf{@Nerosuince , @twottimy , @iloveoishisomuch , @Gatita-here and many more since they dont have githubs}}$$
     <p align="center">$${\color{#433748}\textbf{My family}}$$
     <p align="center">$${\color{#433748}\textbf{@carcrashxoxo , Elliotwitness , @Secretaryykim}}$$
     </details>
