@@ -64,7 +64,29 @@
 
  <p align="center">$${\color{#433748}\textbf{Theres a 50/50 chance that i will follow back someone ! :D}}$$
 
+ <div align="center">
+<details>
+  <summary>
+    $${\Huge\color{#433748}\textbf{Before you int}}$$
+  </summary>
+</p>
+<div align= "center">
+    <p align="center">$${\color{#433748}\textbf{I will not be answearing you if your just there to say smth}}$$
+    <p align="center">$${\color{#433748}\textbf{i will only respond if its a reasonable question or a question that is ok with me}}$$
+    <p align="center">$${\color{#433748}\textbf{im resting from ponytown due to depression of knowing that}}$$
+    <p align="center">$${\color{#433748}\textbf{My family hates me and calling me a copy cat due to that many of my adored friends blocked me}}$$
+    <p align="center">$${\color{#433748}\textbf{i would be responding late , no respond , or maybe slow}}$$
+    <p align="center">$${\color{#433748}\textbf{Thank you for reading.}}$$
+      </details>
+
+ <p align="center">$${\color{#433748}\textbf{*ੈ✩‧₊˚༺}}{\color{#7D4560}\textbf{☆}}{\color{#433748}\textbf{༻*ੈ✩‧₊˚}}$$
+
+   <p align="center">$${\color{#433748}\textbf{The people i trust is the only person i can start a convo}}$$
+
+
 <p alight="center"><img width="2000" height="800" alt="qkuxmo" src="https://github.com/user-attachments/assets/6d29f215-1387-4c9b-837f-97a7d7985bfd" />
+
+
 
  
 
