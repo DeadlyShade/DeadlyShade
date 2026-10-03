@@ -67,21 +67,21 @@
  <div align="center">
 <details>
   <summary>
-    $${\Huge\color{#433748}\textbf{Before you int}}$$
+    $${\Huge\color{#433748}\textbf{People Call me}}$$
   </summary>
 </p>
 <div align= "center">
-    <p align="center">$${\color{#433748}\textbf{I will not be answearing you if your just there to say smth}}$$
-    <p align="center">$${\color{#433748}\textbf{i will only respond if its a reasonable question or a question that is ok with me}}$$
-    <p align="center">$${\color{#433748}\textbf{im resting from ponytown due to depression of knowing that}}$$
-    <p align="center">$${\color{#433748}\textbf{My family hates me and calling me a copy cat due to that many of my adored friends blocked me}}$$
-    <p align="center">$${\color{#433748}\textbf{i would be responding late , no respond , or maybe slow}}$$
-    <p align="center">$${\color{#433748}\textbf{Thank you for reading.}}$$
+    <p align="center">$${\color{#433748}\textbf{People call me mafi , spring , thomas-(only for my gf)}}$$
+    <p align="center">$${\color{#433748}\textbf{Feel free to call me by that names i would love to :D}}$$
+    <p align="center">$${\color{#433748}\textbf{Pls use my pronounce They/Them/He}}$$
+    <p align="center">$${\color{#433748}\textbf{i love cuddles ! they comfort me}}$$
+    <p align="center">$${\color{#433748}\textbf{Feel free to cuddle to me on safe server 1 on bakery area or spawn area}}$$
+    <p align="center">$${\color{#433748}\textbf{Sometimes at chinese server}}$$
       </details>
 
  <p align="center">$${\color{#433748}\textbf{*ੈ✩‧₊˚༺}}{\color{#7D4560}\textbf{☆}}{\color{#433748}\textbf{༻*ੈ✩‧₊˚}}$$
 
-   <p align="center">$${\color{#433748}\textbf{The people i trust is the only person i can start a convo}}$$
+   <p align="center">$${\color{#433748}\textbf{Good Day ! }}$$
 
 
 <p alight="center"><img width="2000" height="800" alt="qkuxmo" src="https://github.com/user-attachments/assets/6d29f215-1387-4c9b-837f-97a7d7985bfd" />
