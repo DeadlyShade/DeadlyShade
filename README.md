@@ -77,12 +77,17 @@
     <p align="center">$${\color{#433748}\textbf{Im usually at safe server 1 but sometimes im at chinese server}}$$
     <p align="center">$${\color{#433748}\textbf{im always at bakery area in the forsaken area. But sometimes at spawn area}}$$
     <p align="center">$${\color{#433748}\textbf{thats all !}}$$
+    </details>
+
+ <p align="center">$${\color{#433748}\textbf{*ੈ✩‧₊˚༺}}{\color{#7D4560}\textbf{☆}}{\color{#433748}\textbf{༻*ੈ✩‧₊˚}}$$
  
 
    <p align="center">$${\color{#433748}\textbf{Good Day ! }}$$
 
 
-<p alight="center"><img width="2000" height="800" alt="qkuxmo" src="https://github.com/user-attachments/assets/6d29f215-1387-4c9b-837f-97a7d7985bfd" />
+<p alight="center"><img width="2000" height="800" alt="qkuxmo" src="https://github.com/user-attachments/assets/194a5ceb-616d-42dc-ac14-7001fec2e848" />
+
+
 
 
 
