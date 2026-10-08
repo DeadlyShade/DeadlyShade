@@ -64,22 +64,20 @@
 
  <p align="center">$${\color{#433748}\textbf{Theres a 50/50 chance that i will follow back someone ! :D}}$$
 
+
+ <p align="center">$${\color{#433748}\textbf{*ੈ✩‧₊˚༺}}{\color{#7D4560}\textbf{☆}}{\color{#433748}\textbf{༻*ੈ✩‧₊˚}}$$
+
  <div align="center">
 <details>
   <summary>
-    $${\Huge\color{#433748}\textbf{People Call me}}$$
+    $${\Huge\color{#433748}\textbf{Servers and place}}$$
   </summary>
 </p>
 <div align= "center">
-    <p align="center">$${\color{#433748}\textbf{People call me mafi , spring , thomas-(only for my gf)}}$$
-    <p align="center">$${\color{#433748}\textbf{Feel free to call me by that names i would love to :D}}$$
-    <p align="center">$${\color{#433748}\textbf{Pls use my pronounce They/Them/He}}$$
-    <p align="center">$${\color{#433748}\textbf{i love cuddles ! they comfort me}}$$
-    <p align="center">$${\color{#433748}\textbf{Feel free to cuddle to me on safe server 1 on bakery area or spawn area}}$$
-    <p align="center">$${\color{#433748}\textbf{Sometimes at chinese server}}$$
-      </details>
-
- <p align="center">$${\color{#433748}\textbf{*ੈ✩‧₊˚༺}}{\color{#7D4560}\textbf{☆}}{\color{#433748}\textbf{༻*ੈ✩‧₊˚}}$$
+    <p align="center">$${\color{#433748}\textbf{Im usually at safe server 1 but sometimes im at chinese server}}$$
+    <p align="center">$${\color{#433748}\textbf{im always at bakery area in the forsaken area. But sometimes at spawn area}}$$
+    <p align="center">$${\color{#433748}\textbf{thats all !}}$$
+ 
 
    <p align="center">$${\color{#433748}\textbf{Good Day ! }}$$
 
