@@ -18,7 +18,6 @@
 </p>
 <div align= "center">
     <p align="center">$${\color{#66BDBA}\textbf{𝙂𝙧𝙚𝙚𝙩𝙞𝙣𝙜𝙨. 𝙒𝙚𝙡𝙘𝙤𝙢𝙚 𝙩𝙤 𝙢𝙮 𝙜𝙞𝙩𝙝𝙪𝙗.}}$$
-    <p align="center">$${\color{#66BDBA}\textbf{𒅒𒈔𒅒𒇫𒄆𒅒𒈔𒅒𒇫𒄆𒅒𒈔𒅒𒇫𒄆𒅒𒈔𒅒𒇫𒄆𒅒𒈔𒅒𒇫𒄆𒅒𒈔𒅒𒇫𒄆}$$
     <p align="center">$${\color{#66BDBA}\textbf{𝙋𝙚𝙤𝙥𝙡𝙚 𝙞𝙢 𝙘𝙤𝙢𝙛𝙤𝙧𝙩𝙖𝙗𝙡𝙚 𝙬𝙞𝙩𝙝 𝙖𝙧𝙚 𝙢𝙤𝙨𝙩𝙡𝙮 𝙬𝙞𝙩𝙝 𝙢𝙚.}}$$
     <p align="center">$${\color{#66BDBA}\textbf{𝙄𝙢 𝙞𝙣 𝙖 𝙧𝙚𝙖𝙡𝙩𝙞𝙤𝙣𝙨𝙝𝙞𝙥}}$$
     <p align="center">$${\color{#66BDBA}\textbf{𝙄𝙢 𝙢𝙤𝙨𝙩𝙡𝙮 𝙣𝙤𝙩 𝙞𝙣 𝙩𝙝𝙚 𝙘𝙧𝙤𝙬𝙙𝙨. 𝙎𝙞𝙣𝙘𝙚 𝙢𝙮 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 𝙖𝙧𝙚 𝙢𝙤𝙨𝙩𝙡𝙮 𝙩𝙝𝙚𝙧𝙚}}$$
